@@ -1,0 +1,1 @@
+# June-cohort-git-class
